@@ -21,3 +21,9 @@ If that goes well I might expand to clothes, or another town or something. We'll
 # Who's behind this?
 
 This site is a side-project of [Charm Consulting Ltd.](<https://charmconsulting.co.uk/>)
+
+# Behind the scenes
+
+## Working in the open
+
+I'll be sharing just about everything as I go. Follow along on [GitHub](https://github.com/timslist) and [Twitter](https://twitter.com/tim_abell).
