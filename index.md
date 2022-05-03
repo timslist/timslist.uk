@@ -6,11 +6,9 @@ A place for buying, selling, exchanging, giving away, recycling, reusing and gen
 
 ## Well hello there, you're early
 
-This isn't ready yet, but you can join my local toy trading group here: [Facebook - Tadley Toys](https://www.facebook.com/groups/tadleytoys)
-> Hello, welcome to this new group for Tadley. I'm a local dad of toy-loving kids.  
-> Post in here to buy/sell/exchange or give away kids toys. They go through them so fast! Please invite other local mums/dads/carers/grandparents etc to make this a thriving community 🙂  
-> Let's get those toys back into the hands of excited children and keep them out of landfill.  
-> Feel free to post links to things you have on other platforms such as marketplace, ebay etc so long as they are still Tadley based.
+This isn't ready yet, but if you want to start buying and selling now you can join my local toy trading group here: [Facebook - Tadley Toys](https://www.facebook.com/groups/tadleytoys)
+
+If you'd like me to let you know when there's something to use here then probably the best thing to do is [join my general mailing list](https://timwise.co.uk/subscribe/) but do note that that's for everything I do and build not just this site.
 
 ## What's this going to be?
 
